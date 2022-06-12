@@ -1,1 +1,1 @@
-# Projekt_STD
+Bartłomiej Tabaka
